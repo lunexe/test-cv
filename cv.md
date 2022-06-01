@@ -26,5 +26,3 @@ My hobbies are yoga and film photography
 English - Upper-intermediate (B2)
 [EF SET Certificate] (https://www.efset.org/cert/mwqCsB) 
 French – A2
-
-
